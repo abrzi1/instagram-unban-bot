@@ -28,17 +28,15 @@ tool can unbanned all this
 
 one month 140$
 
-life time 380$
+life time 580$
 
 tool working %100
 
-if you want to b/uy it contact me on instagram
+if you want to b/uy it contact me on telegram
 
+
+https://t.me/rootabrzi
+
+ or on instagram
+ 
 https://instagram.com/mdip?igshid=NTc4MTIwNjQ2YQ==
-
-or on telegram
-
-https://t.me/abrzi505
-
-
-
